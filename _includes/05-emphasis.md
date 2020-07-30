@@ -1,0 +1,1 @@
+Just so you know, there are a lot of things about me that I think are *strengths* including *collaboration, working with others, and building relationships*.  There are a _few_ weaknesses, as well...but you have to get to know me better first!
