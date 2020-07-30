@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+* Ice Cream
+* Fitness
+  * Running
+  * Hitting the Gym
+* My dog!
